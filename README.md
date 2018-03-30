@@ -1,0 +1,2 @@
+# abahkusuwoyo
+edukasi
